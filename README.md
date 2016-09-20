@@ -1,6 +1,6 @@
 ##个人简介
 
-已经是大三的老人 = =b 专业：树莓
+已经是大三的老人 = =b 专业 树莓
 
 对将来虚得不行，前途一片灰暗233，果断奶起来
 
@@ -12,7 +12,7 @@
 
 就这样吧
 
-![](http://imgsrc.baidu.com/forum/w%3D580/sign=61d56929bf0e7bec23da03e91f2fb9fa/5262352ac65c10380b97b3e4b5119313b17e89d9.jpg)
+![](http://img2.imgtn.bdimg.com/it/u=2556137391,3719098293&fm=21&gp=0.jpg)
 
 
 
